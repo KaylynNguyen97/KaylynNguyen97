@@ -1,6 +1,6 @@
 # Hi there! 👋 I'm Kaylyn Nguyen
 
-Marketing Analytics Professional | Data Science Enthusiast**
+**Marketing Analytics Professional | Data Science Enthusiast**
 
 📍 San Francisco, Bay Area | 🔗 [LinkedIn](https://linkedin.com/in/kaylyn-nguyen)
 
